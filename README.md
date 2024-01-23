@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GreenKeewi
+- 👀 I’m interested in: Coding and Soccer
+- 🌱 I’m currently learning: Javascript, Making Websites
+- 📫 How to reach me: b.lacki5h *is my discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like kiwi's
